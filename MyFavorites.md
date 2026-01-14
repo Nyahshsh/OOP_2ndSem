@@ -1,6 +1,20 @@
-# Favorites
+# Favorite Pepol
 My Bwibwi
-Been Like This - Doja Cat
 Jayjay
-Japan
+Agh-ron
+
+# Favorite Artists
+Doja Cat
 Ariana Grande
+
+# Favorite Movies
+EndGame
+IT
+
+# Favorite "Lucky" Numbers
+6
+9
+7
+3
+8
+
